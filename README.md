@@ -1,1 +1,1 @@
-# diskrit-pert-7
+tugas MATEMATIKA DISKRITT SAYANGKUHH
